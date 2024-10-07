@@ -17,7 +17,7 @@ ${tradutor.texto1[1]}
 
 4.- https://chat.whatsapp.com/FFB0fgdK3IP4ZEmZ8jF1CC
 
-> GHOST TEAM :
+> KILLZN TEAM :
 
 1.- https://chat.whatsapp.com/FFB0fgdK3IP4ZEmZ8jF1CC
 
